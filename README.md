@@ -1,6 +1,5 @@
-# EMC易倍体育回家页 - 服务至上，永不失联
+# EMC易倍体育回家页 - 敬请保存 永不失联
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
-
 
 ### EMC易倍体育-永不失联:  [PC官网链接]
 ### <https://www.tx6d.com>
