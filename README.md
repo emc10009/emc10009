@@ -2,14 +2,14 @@
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
 
 ### EMC易倍体育-永不失联:  [PC官网链接]
-### <https://www.tx6d.com>
-### <https://www.tx6k.com>
+### <https://www.uopi55.com>
+### <https://www.vvkk56.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.mec868.com>
-### <https://www.mec969.com>
+### <https://www.kddk99.com>
+### <https://www.kncv66.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
-### <https://www.enn77.com>
-### <https://www.enn88.com>
+### <https://www.bbyy66.com>
+### <https://www.btee33.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.xk9tut.com>
 ### [特殊地区H5] <https://www.bm9eim.com>
