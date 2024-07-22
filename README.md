@@ -5,14 +5,14 @@
 ### <https://www.ozbc590.com>
 ### <https://www.ozbc996.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.ozbb342.com>
-### <https://www.ozbb348.com>
+### <https://www.qkqk7.com>
+### <https://www.kknn7.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
 ### <https://www.emc108.app>
 ### <https://www.emc109.app>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.bdjv78.com>
-### [特殊地区H5] <https://www.xiuh73.com>
+### [特殊地区H5] <https://www.kknn7.com>
 ### [特殊地区APP下载] <https://www.dlhu37.com>
 
 <!--
