@@ -5,14 +5,14 @@
 ### <https://www.kkd188.com>
 ### <https://www.uut188.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.uud188.com>
-### <https://www.mmv188.com>
+### <https://www.mee177.com>
+### <https://www.knn177.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
 ### <https://www.ppw188.com>
 ### <https://www.wwn188.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.ttx188.com>
-### [特殊地区H5] <https://www.nnk188.com>
+### [特殊地区H5] <https://www.saa177.com>
 ### [特殊地区APP下载] <https://www.vrc188.com>
 
 <!--
