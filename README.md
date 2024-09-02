@@ -2,18 +2,18 @@
 ![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
 
 ### EMC易倍体育-永不失联:  [PC官网链接]
-### <https://www.kkd188.com>
-### <https://www.uut188.com>
+### <https://www.ums362.com>
+### <https://www.vjz801.com>
 ### EMC易倍体育-永不失联:  [H5官网链接]
-### <https://www.mee177.com>
-### <https://www.knn177.com>
+### <https://www.vzq971.com>
+### <https://www.aro021.com>
 ### EMC易倍体育-永不失联:  [APP下载官网链接]
-### <https://www.ppw188.com>
-### <https://www.wwn188.com>
+### <https://www.zcv228.com>
+### <https://www.rdk594.com>
 ### EMC易倍体育-永不失联:  [特殊地区链接]
-### [特殊地区PC] <https://www.ttx188.com>
-### [特殊地区H5] <https://www.saa177.com>
-### [特殊地区APP下载] <https://www.vrc188.com>
+### [特殊地区PC] <https://www.ofy385.com>
+### [特殊地区H5] <https://www.ztj951.com>
+### [特殊地区APP下载] <https://www.lwl293.com>
 
 <!--
 **emc10009/emc10009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
