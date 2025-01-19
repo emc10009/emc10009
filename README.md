@@ -1,16 +1,16 @@
-# EMC易倍体育回家页 - 敬请保存 永不失联
-![image](https://github.com/emc00123/emc00123/assets/161131716/7c9a2641-80ea-4bcf-9aa9-06c69f78449d)
+# 回家页 - 敬请保存 永不失联
 
-### EMC易倍体育-永不失联:  [PC官网链接]
+
+### 永不失联:  [PC官网链接]
 ### <https://www.gim1798.com>
 ### <https://www.gim3958.com>
-### EMC易倍体育-永不失联:  [H5官网链接]
+### 永不失联:  [H5官网链接]
 ### <https://www.gim1988.com>
 ### <https://www.gim1542.com>
-### EMC易倍体育-永不失联:  [APP下载官网链接]
+### 永不失联:  [APP下载官网链接]
 ### <https://www.gim3331.com>
 ### <https://www.gim9273.com>
-### EMC易倍体育-永不失联:  [特殊地区链接]
+### 永不失联:  [特殊地区链接]
 ### [特殊地区PC] <https://www.gim3354.com>
 ### [特殊地区H5] <https://www.gim5626.com>
 ### [特殊地区APP下载] <https://www.gim7367.com>
