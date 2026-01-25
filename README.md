@@ -2,18 +2,18 @@
 
 
 ### 永不失联:  [PC官网链接]
-### <https://www.gyz1952.com>
-### <https://www.gyz5145.com>
+### <https://www.fay414.com>
+### <https://www.fay121.com>
 ### 永不失联:  [H5官网链接]
-### <https://www.gyz1217.com>
-### <https://www.gyz5559.com>
+### <https://www.fay783.com>
+### <https://www.fay533.com>
 ### 永不失联:  [APP下载官网链接]
-### <https://www.gyz5638.com>
-### <https://www.gyz5329.com>
+### <https://www.fay345.com>
+### <https://www.fay683.com>
 ### 永不失联:  [特殊地区链接]
-### [特殊地区PC] <https://www.gyz7548.com>
-### [特殊地区H5] <https://www.gyz9613.com>
-### [特殊地区APP下载] <https://www.gyz5297.com>
+### [特殊地区PC] <https://www.fay747.com>
+### [特殊地区H5] <https://www.fay431.com>
+### [特殊地区APP下载] <https://www.fay527.com>
 
 <!--
 **emc10009/emc10009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
